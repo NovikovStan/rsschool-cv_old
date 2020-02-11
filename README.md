@@ -1,0 +1,1 @@
+https://NovikovStan.github.io/rsschool-cv/cv
